@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @therishabhkumar
+- 👋 Hi, I’m @irishabhkumar
 - 👀 I’m interested in reading books, stock market, c language.
 - 🌱 I’m currently learning c language
 - 📫 How to reach me https://Instagram.com/irishabhkumar_
